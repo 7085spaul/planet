@@ -1,6 +1,6 @@
 # 🌍 PlanetPledge
 
-[**Visit PlanetPledge**](https://daspriyosmita2003.wixstudio.io/planetpledge)
+[**Visit PlanetPledge**](https://7085spaul.wixstudio.io/planetpledge)
 
 ## Introduction
 **Welcome to PlanetPledge**, your ultimate climate change awareness hub! Our mission is to engage, educate, and inspire action towards a sustainable future. Dive into a world of interactive features designed to promote eco-friendly practices and build a passionate community dedicated to protecting our planet.
